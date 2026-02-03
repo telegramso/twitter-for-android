@@ -1,5 +1,4 @@
-# twitter-for-android
-x，twitter-for-android download 黑X推特安卓最新APP APK应用下载 download
+# x-for-android app，twitter-for-android app download X,推特安卓最新APP,APK，软件，应用下载 download
 
 国外热门APP，Telegram、X、Tiktok、Instagram、Youtube、Discord、Facebook、WhatsApp，Android download（安卓下载）链接：  
 http://wwamo.appboz.com/b014wp8qmf
